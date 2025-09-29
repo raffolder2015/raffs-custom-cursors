@@ -1,2 +1,2 @@
-# raffs-custom-cursors
-here are some custom cursors n' shit
+# Raff's custom cursors ig
+yes cursors
